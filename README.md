@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @OrdenBus
+- 👀 I’m interested in Cars.
+- 🌱 I’m currently learning how to spek.
+- 💞️ I’m looking to collaborate on the Car and me
+- 📫 How to reach me Tell me Carlos Bananos
+- Ich liebe Autos (Supra MK4, Ford Mustang 429 Boss, Nissan skyline r34, Bugatti Bolide)
+- Ich arbeite an einem Robooter
